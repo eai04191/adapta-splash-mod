@@ -1,0 +1,1 @@
+# adapta-splash-mod
